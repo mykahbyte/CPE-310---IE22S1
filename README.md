@@ -15,7 +15,7 @@
 > 
 > Bachelor in Science of Industrial Engineering student
 > 
-> FADC and Talent's Guild Member
+> Talent's Guild Member
 >
 
 ˚｡ ⋆｡°✩✮ ⋆ ˚｡ ⋆｡°✩✮ ⋆ ˚｡｡°✩✮ ⋆ ˚｡⋆｡°✩✮ ⋆ ˚｡°✩✮ ⋆ ˚｡｡°✩✮ ⋆ ˚｡｡°✩✮ ⋆ ˚｡°✩✮ ⋆ ˚｡｡°✩✮ ⋆ ˚｡｡°✩
